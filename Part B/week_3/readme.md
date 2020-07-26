@@ -1,0 +1,1 @@
+This week does not contain a programming assignment (only a quiz) :D
